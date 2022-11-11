@@ -1,1 +1,2 @@
-# expandingcards
+# Expandingcards
+#### in expanding card just added some randome wallpaper and text thats it.....
